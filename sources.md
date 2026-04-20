@@ -1,5 +1,5 @@
- list of all experts with links, dates, and brief annotations - Newsletter/Email Marketing for B2B SaaS:
- Justin Welsh [
+ list of all experts -  Newsletter/Email Marketing for B2B SaaS:
+ Justin Welsh 
  Chase Dimond
  Matt McGarry
  Janel Loi
